@@ -1,3 +1,3 @@
 # hw1
 First Homework Assignment 
-Thank You viewing my homeowrk. Please always let me know aht can be improved. Thanks!
+Thank You viewing my homework. Please always let me know what can be improved. Thanks!
